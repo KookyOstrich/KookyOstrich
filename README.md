@@ -4,6 +4,8 @@
 - 💞️ I love tragding Forex, stock. I will build my own system to support my trade with AI power.
 - 📫 How to reach me . Feel free to reach out me kookyorstrich.ko@gmail.com.
 
+**buy me a coffee**😉
+https://buymeacoffee.com/kookyostri3
 
 <!---
 KookyOstrich/KookyOstrich is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
